@@ -9,7 +9,7 @@
 > **"A união perfeita entre atendimento humanizado em escala e governança financeira implacável."**
 > *Status: 🚀 Serviço B2B Ativo & Homologado.*
 
-![Card Ecossistema Júlia](logo-juliaastra.png)
+![Card Ecossistema Júlia](julia__card_info_site_cristalwolf_800x450_prop16-9.jpg)
 
 ---
 
